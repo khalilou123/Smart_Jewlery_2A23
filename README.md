@@ -1,0 +1,1 @@
+# Smart_Jewlery_2A23
